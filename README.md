@@ -1,0 +1,2 @@
+# CLOUD-SALI
+Get involved with Crowd sali It is completely free to join Crowd sali. However, you always need a sponsor's link. With that link you can then go on to browse the C-Store and explore all our great products as a customer. If you would like to get more involved you can recommend the products to others as a Member. You can also decide to grow your own crowd as an entrepreneur. Members and entrepreneurs are called Affiliates of Crowd sali. To avoid any confusion, Crowd sali is not an investment scheme in any shape or form.
